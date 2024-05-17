@@ -1,2 +1,2 @@
-# mENING-BIRINCHI-PROEKTIM
+# MENING-BIRINCHI-PROEKTIM
 men zo'r praect tuzdim
